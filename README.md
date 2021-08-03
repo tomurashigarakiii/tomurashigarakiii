@@ -3,5 +3,6 @@
 - 🌱 I’m currently learning japanese 
 - 📫 you can chat with me at discord --> tomurā shigārāki#2034
 
-based on a anime /naruto/   itachi/sasuke theme
+
+
 
